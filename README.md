@@ -1,8 +1,8 @@
-Privacy Policy for Komal
+Privacy Policy for komalkharaliya_official
 
 1. Introduction
 
-Welcome to [Your App Name] ("we," "our," or "us"). This Privacy Policy explains how we handle user data when you use our app.
+Welcome to komalkharaliya_official . This Privacy Policy explains how we handle user data when you use our app.
 
 2. Information We Collect
 
